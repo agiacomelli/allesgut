@@ -1,5 +1,8 @@
 # Alles Gut .... - von wegen
 
+http://agu.adriangiacomelli.com
+
+
 Mit dieser kleinen und bescheidenen Sammlung alltäglicher Phrasen soll
 gezeigt werden, was durch diesen unsäglichen Alleskönner Alles gut verloren geht.
 
