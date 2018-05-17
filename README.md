@@ -19,7 +19,7 @@ Denn, wie man weiß, folgt auf diesen Satz selten ein Gespräch.
   So kommunikativ kann unser Zeitalter nicht sein, wenn jeder zweite-dritte Ansatz
   ein Gespräch anzufangen mit dieser Phrase abgeblockt wird.
   
-    Sicher gibt es Momente, in denen Alles gut zu sagen angebracht ist, zum Beispiel
+  Sicher gibt es Momente, in denen Alles gut zu sagen angebracht ist, zum Beispiel
   am sechsten Tag konnte sich Gott mit diesen Worten selbst auf die Schulter klopfen.
   Das ist aber auch der einzige Fall, wo es angebracht scheint. Ansonsten wüsste ich keinen Grund,
   oder vielleicht bin ich einfach nicht vermessen genug, alles gut zu finden.
